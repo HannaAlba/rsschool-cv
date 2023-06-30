@@ -1,6 +1,6 @@
 # Hanna Ivashenka
 ## How To Reach Me
-* **Phone**: 
+* **Phone**: +375(29)6900311
 * **Email**: gudojt@gmail.com
 * **Discord**: @HannaAlba
 ## About Myself
